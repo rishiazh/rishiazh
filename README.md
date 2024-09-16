@@ -3,7 +3,7 @@
 
 👨‍💻 All of my projects are available at https://github.com/rishiazh
 
-📫 How to reach me se.rishimad2@gmail.com
+📫 How to reach me rishimad2@gmail.com
 
 📫 How to reach me https://www.linkedin.com/in/rishi-maddheshiya-020b14267/
 
