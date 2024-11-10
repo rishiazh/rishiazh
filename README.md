@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **Python,SQL,Stastistics,Data Visulation**
 
-- 📫 How to reach me **rishimad2@gmail.com**
+- 👀 Take a look at my portfolio **Portfolio** [https://sites.google.com/view/rishi-portfolioo/home](https://sites.google.com/view/rishi-portfolioo/home)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
